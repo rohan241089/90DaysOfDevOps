@@ -1,4 +1,4 @@
-# 3 Goals I want to create
+# 3 Goals I want to create and for that following actions I am taking daily
 
 1. I want to get 40Lakhs + package in coming year
 2. I am studying 1 and half hours study daily
